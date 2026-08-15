@@ -304,6 +304,4 @@ This section will continue to grow as additional traffic signal maintenance, rep
 
 Smart Technology. Reliable Solutions. 💙💚
 
-Smart Technology. Reliable Solutions.
-
 🚀 Learn. Build. Earn.
